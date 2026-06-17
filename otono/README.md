@@ -1,7 +1,5 @@
 ## Mis poemas de Otoño
 
-![foto](otono/otono-01.jpeg)
-
 #### Sábado 23 de mayo, 2026
 
 Debo ser cautelosa con mis palabras,
@@ -17,3 +15,7 @@ resiste en esta implicancia;
 Vestigio,
 
 algún vestigio de ti.
+
+![foto](/otono/otono-01.jpeg)
+
+![foto](/otono/otono-02.jpeg)
