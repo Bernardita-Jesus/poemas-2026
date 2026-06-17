@@ -1,5 +1,7 @@
 # Mis poemas de Otoño
 
+foto de agua
+
 #### Sábado 23 de mayo, 2026
 
 Debo ser cautelosa con mis palabras,
