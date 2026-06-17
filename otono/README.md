@@ -19,3 +19,21 @@ algún vestigio de ti.
 ![foto](/otono/otono-01.jpeg)
 
 ![foto](/otono/otono-02.jpeg)
+
+#### Jueves 04 de Junio, 2026
+
+me quiero ahogar en este frío de la mañana
+
+y desde la mañana,
+
+quiero quedarme inmóvil en este no creer,
+
+quiero quedarme inmóvil,
+
+quiero creer
+
+que
+
+estarás
+
+mañana.
