@@ -1,6 +1,6 @@
 ## Mis poemas de Otoño
 
-foto de agua
+![foto](otono/otono-01.jpeg)
 
 #### Sábado 23 de mayo, 2026
 
