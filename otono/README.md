@@ -16,10 +16,6 @@ Vestigio,
 
 algún vestigio de ti.
 
-![foto](/otono/otono-01.jpeg)
-
-![foto](/otono/otono-02.jpeg)
-
 #### Jueves 04 de Junio, 2026
 
 me quiero ahogar en este frío de la mañana
@@ -37,3 +33,27 @@ que
 estarás
 
 mañana.
+
+![foto](/otono/otono-01.jpg)
+
+![foto](/otono/otono-02.jpg)
+
+![foto](/otono/otono-03.jpg)
+
+![foto](/otono/otono-04.jpg)
+
+![foto](/otono/otono-05.jpg)
+
+![foto](/otono/otono-06.jpg)
+
+![foto](/otono/otono-07.jpg)
+
+![foto](/otono/otono-08.jpg)
+
+![foto](/otono/otono-09.jpg)
+
+![foto](/otono/otono-10.jpeg)
+
+![foto](/otono/otono-11.jpeg)
+
+![foto](/otono/otono-12.jpeg)
