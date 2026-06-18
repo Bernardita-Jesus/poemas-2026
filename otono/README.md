@@ -1,6 +1,34 @@
 ## Mis poemas de Otoño
 
+#### Lunes 27 de abril, 2026
 
+Me encontré en ellas, 
+
+rebozante de colores, 
+
+rondan mi mente, 
+
+implicantes
+
+desprevenida.
+
+Ayer mis ademanes te lo afirmaron; 
+
+Me hallaste, estaba oculta.
+
+Bajo este árbol estoy oculta,
+
+soy este árbol y estoy oculta,
+
+con entereza yo me sostengo, 
+
+pero he notado, 
+
+que entre los trazos, mientras me extiendo, 
+
+no soy perenne, 
+
+y aquí perduro.
 
 ![foto](/otono/otono-01.jpg)
 
@@ -58,4 +86,4 @@ mañana.
 
 ![foto](/otono/otono-11.jpeg)
 
-![foto](/otono/otono-12.jpeg)
+
