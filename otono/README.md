@@ -8,9 +8,9 @@ rebozante de colores,
 
 rondan mi mente, 
 
-implicantes
+implicantes.
 
-desprevenida.
+Desprevenida.
 
 Ayer mis ademanes te lo afirmaron; 
 
