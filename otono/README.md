@@ -34,13 +34,9 @@ y aquí perduro.
 
 ![foto](/otono/otono-02.jpg)
 
-![foto](/otono/otono-03.jpg)
-
 ![foto](/otono/otono-04.jpg)
 
 ![foto](/otono/otono-05.jpg)
-
-![foto](/otono/otono-06.jpg)
 
 ![foto](/otono/otono-07.jpg)
 
