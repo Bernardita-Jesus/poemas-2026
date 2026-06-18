@@ -46,8 +46,6 @@ y aquí perduro.
 
 ![foto](/otono/otono-08.jpg)
 
-![foto](/otono/otono-09.jpg)
-
 #### Sábado 23 de mayo, 2026
 
 Debo ser cautelosa con mis palabras,
@@ -64,7 +62,7 @@ Vestigio,
 
 algún vestigio de ti.
 
-![foto](/otono/otono-10.jpeg)
+![foto](/otono/otono-09.jpg)
 
 #### Jueves 04 de Junio, 2026
 
@@ -83,6 +81,8 @@ que
 estarás
 
 mañana.
+
+![foto](/otono/otono-10.jpeg)
 
 ![foto](/otono/otono-11.jpeg)
 
