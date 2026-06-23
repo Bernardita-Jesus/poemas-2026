@@ -34,6 +34,8 @@ y aquí perduro.
 
 ![foto](/otono/otono-02.jpg)
 
+
+
 ![foto](/otono/otono-04.jpg)
 
 ![foto](/otono/otono-05.jpg)
