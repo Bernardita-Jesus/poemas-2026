@@ -28,5 +28,5 @@ habito un viacrucis
 
 camino de devoción
 
-sepúltenme entre los retoños
+sepúltenme entre retoños
 
