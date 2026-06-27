@@ -1,6 +1,6 @@
 ## Mis poemas de Otoño
 
-#### Lunes 20 de abril, 2026
+#### Lunes 20 de abril, otoño 2026
 
 he evitado nombrar,
 
@@ -16,9 +16,7 @@ me ensordece;
 
 Con devoción, llegará el día en que mi rumiar se consuma.
 
-![foto](/otono/otono-01.jpg)
-
-#### Lunes 27 de abril, 2026
+#### Lunes 27 de abril, otoño 2026
 
 Me encontré en ellas,
 
@@ -48,9 +46,37 @@ no soy perenne,
 
 y aquí perduro.
 
+#### Domingo 3 de mayo, otoño 2026
+
+Desde mi secreto:
+
+afirmaste bajo la inercia,
+
+punciones
+
+sentí el llamado,
+
+de este secreto que me exige que me arme,
+
+que corra
+
+que corra a ocultarlo.
+
+A enterrarlo en los áridos,
+
+atrás de las puertas,
+
+bajo estas escaleras
+
+que se enmarañan,
+
+ahí está
+
+ahí lo oculté.
+
+![foto](/otono/otono-01.jpg)
+
 ![foto](/otono/otono-02.jpg)
-
-
 
 ![foto](/otono/otono-04.jpg)
 
@@ -60,7 +86,7 @@ y aquí perduro.
 
 ![foto](/otono/otono-08.jpg)
 
-#### Sábado 23 de mayo, 2026
+#### Sábado 23 de mayo, otoño 2026
 
 Debo ser cautelosa con mis palabras,
 
@@ -78,7 +104,19 @@ algún vestigio de ti.
 
 ![foto](/otono/otono-09.jpg)
 
-#### Jueves 04 de Junio, 2026
+#### Jueves 28 de mayo, otoño 2026
+
+se ramificaron aquellas sentencias
+
+y mis añoranzas;
+
+no hay ninguna parte de mí
+
+que crea que esto es lo correcto.
+
+quiero besarte como si te dijera que te amara.
+
+#### Jueves 04 de junio, otoño 2026
 
 me quiero ahogar en este frío de la mañana
 
@@ -98,6 +136,19 @@ mañana.
 
 ![foto](/otono/otono-10.jpeg)
 
+#### Lunes 08 de junio, otoño 2026
+
+mis sentimientos son inefables,
+
+siento esta incomprensión casi espiritual.
+
 ![foto](/otono/otono-11.jpeg)
 
+#### Viernes 19 de junio, otoño 2026
+
+la tierra se acongoja,
+
+esta elipse de la mañana
+
+solo pronuncia lo corroído de mi pasar.
 
