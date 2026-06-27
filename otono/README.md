@@ -2,15 +2,15 @@
 
 #### Lunes 20 de abril, 2026
 
-he evitado nombrar
+he evitado nombrar,
 
-concretar solo la idea
+concretar solo la idea,
 
 esa idea, mi idea, esta idea;
 
-Esta que se instaura
+Esta que se instaura,
 
-carcome un susurro
+carcome un susurro,
 
 me ensordece;
 
@@ -20,11 +20,11 @@ Con devoción, llegará el día en que mi rumiar se consuma.
 
 #### Lunes 27 de abril, 2026
 
-Me encontré en ellas 
+Me encontré en ellas,
 
-rebozante de colores 
+rebozante de colores, 
 
-rondan mi mente
+rondan mi mente,
 
 implicantes.
 
@@ -34,17 +34,17 @@ Ayer mis ademanes te lo afirmaron;
 
 Me hallaste, estaba oculta.
 
-Bajo este árbol estoy oculta
+Bajo este árbol estoy oculta,
 
-soy este árbol y estoy oculta
+soy este árbol y estoy oculta,
 
-con entereza yo me sostengo
+con entereza yo me sostengo,
 
-pero he notado 
+pero he notado,
 
-que entre los trazos, mientras me extiendo
+que entre los trazos, mientras me extiendo,
 
-no soy perenne
+no soy perenne,
 
 y aquí perduro.
 
