@@ -136,7 +136,7 @@ mis sentimientos son inefables,
 
 siento esta incomprensión casi espiritual.
 
-![foto](/otono/otono-10.jpeg)
+![foto](/otono/otono-12.jpeg)
 
 #### Viernes 19 de junio, otoño 2026
 
