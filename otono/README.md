@@ -1,5 +1,11 @@
 ## Mis poemas de Otoño
 
+Poemas y fotografías de mi tan ansiado otoño
+
+Mi estación predilecta, que ronda colores, que pronuncia formas, que muestra un proceso de preparación hacia el cuidado.
+
+![foto](/otono/otono-08.jpg)
+
 #### Lunes 20 de abril, otoño 2026
 
 he evitado nombrar,
@@ -68,7 +74,7 @@ A enterrarlo en los áridos,
 
 atrás de las puertas,
 
-bajo estas escaleras
+bajo estas escaleras,
 
 que se enmarañan,
 
@@ -88,7 +94,7 @@ algo apacible en mí se prepara,
 
 resiste en esta implicancia;
 
-¿queda algún vestigio de amor?
+¿Queda algún vestigio de amor?
 
 Vestigio,
 
@@ -98,21 +104,21 @@ algún vestigio de ti.
 
 #### Jueves 28 de mayo, otoño 2026
 
-se ramificaron aquellas sentencias
+se ramificaron aquellas sentencias,
 
 y mis añoranzas;
 
-no hay ninguna parte de mí
+No hay ninguna parte de mí
 
 que crea que esto es lo correcto.
 
-quiero besarte como si te dijera que te amara.
+Quiero besarte como si te dijera que te amara.
 
 ![foto](/otono/otono-09.jpg)
 
 #### Jueves 04 de junio, otoño 2026
 
-me quiero ahogar en este frío de la mañana
+Me quiero ahogar en este frío de la mañana,
 
 y desde la mañana,
 
@@ -142,7 +148,7 @@ siento esta incomprensión casi espiritual.
 
 la tierra se acongoja,
 
-esta elipse de la mañana
+esta elipse de la mañana,
 
 solo pronuncia lo corroído de mi pasar.
 
