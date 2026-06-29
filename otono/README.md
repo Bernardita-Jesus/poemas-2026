@@ -16,6 +16,8 @@ me ensordece;
 
 Con devoción, llegará el día en que mi rumiar se consuma.
 
+![foto](/otono/otono-07.jpg)
+
 #### Lunes 27 de abril, otoño 2026
 
 Me encontré en ellas,
@@ -28,7 +30,7 @@ implicantes.
 
 Desprevenida.
 
-Ayer mis ademanes te lo afirmaron; 
+Ayer mis ademanes te lo afirmaron;
 
 Me hallaste, estaba oculta.
 
@@ -45,6 +47,8 @@ que entre los trazos, mientras me extiendo,
 no soy perenne,
 
 y aquí perduro.
+
+![foto](/otono/otono-01.jpg)
 
 #### Domingo 3 de mayo, otoño 2026
 
@@ -74,17 +78,7 @@ ahí está
 
 ahí lo oculté.
 
-![foto](/otono/otono-01.jpg)
-
-![foto](/otono/otono-02.jpg)
-
 ![foto](/otono/otono-04.jpg)
-
-![foto](/otono/otono-05.jpg)
-
-![foto](/otono/otono-07.jpg)
-
-![foto](/otono/otono-08.jpg)
 
 #### Sábado 23 de mayo, otoño 2026
 
@@ -102,7 +96,7 @@ Vestigio,
 
 algún vestigio de ti.
 
-![foto](/otono/otono-09.jpg)
+![foto](/otono/otono-06.jpg)
 
 #### Jueves 28 de mayo, otoño 2026
 
@@ -115,6 +109,8 @@ no hay ninguna parte de mí
 que crea que esto es lo correcto.
 
 quiero besarte como si te dijera que te amara.
+
+![foto](/otono/otono-09.jpg)
 
 #### Jueves 04 de junio, otoño 2026
 
@@ -134,7 +130,7 @@ estarás
 
 mañana.
 
-![foto](/otono/otono-10.jpeg)
+![foto](/otono/otono-11.jpeg)
 
 #### Lunes 08 de junio, otoño 2026
 
@@ -142,7 +138,7 @@ mis sentimientos son inefables,
 
 siento esta incomprensión casi espiritual.
 
-![foto](/otono/otono-11.jpeg)
+![foto](/otono/otono-10.jpeg)
 
 #### Viernes 19 de junio, otoño 2026
 
@@ -152,3 +148,4 @@ esta elipse de la mañana
 
 solo pronuncia lo corroído de mi pasar.
 
+![foto](/otono/otono-10.jpeg)
