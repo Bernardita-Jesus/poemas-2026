@@ -38,3 +38,15 @@ hazme parte,
 
 fúndamentame.
 
+#### Lunes 29 de junio, invierno 2026
+
+nunca desperté
+
+recorro laberintos
+
+entro por una y otra puerta
+
+cada vez más adentro
+
+y no logro conciliar esta certidumbre
+
