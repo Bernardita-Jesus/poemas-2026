@@ -8,9 +8,17 @@ Poemas de [Invierno]()
 
 ### Autorretratros
 
-He soñado que mi reflejo se mueve con lentitud, un espejo de reverberación. se burla de mí, se jacta. ¿es una parte maligna de mí? temo dedicarme a comprenderla, temo dedicarme a ella.
+He soñado que mi reflejo se mueve con lentitud, 
 
-desde mi incomprensión con este sueño, nacen mis autorretratos.
+un espejo de reverberación. 
+
+Se burla de mí, se jacta. 
+
+¿Es una parte maligna de mí?
+
+Temo dedicarme a comprenderla, temo dedicarme a ella.
+
+Desde mi incomprensión con este sueño, nacen mis autorretratos.
 
 Autorretratro de Otoño
 
