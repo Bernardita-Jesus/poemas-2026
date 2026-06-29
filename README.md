@@ -1,6 +1,6 @@
 ## Mis poemas por estación del año
 
-las estaciones del año conforman un espacio muy importante en mi quehacer, en mi manera de habitar. es lo único que me mantiene en perspectiva del paso del tiempo, al cual temo, pero es una manera más dulce y esperanzadora de sentir los días; que los días continúan, que habrá un mañana, en donde las etapas y los procesos sí existen y se están gestando.
+Las estaciones del año conforman un espacio muy importante en mi quehacer, en mi manera de habitar. es lo único que me mantiene en perspectiva del paso del tiempo, al cual temo, pero es una manera más dulce y esperanzadora de sentir los días; que los días continúan, que habrá un mañana, en donde las etapas y los procesos sí existen y se están gestando.
 
 Primeros poemas desde [Otoño]()
 
