@@ -58,9 +58,9 @@ no soy perenne.
 
 Desde mi secreto:
 
-afirmaste bajo la inercia,
+Afirmaste bajo la inercia,
 
-punciones
+punciones,
 
 sentí el llamado,
 
