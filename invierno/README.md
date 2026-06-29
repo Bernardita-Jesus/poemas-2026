@@ -28,6 +28,8 @@ habito un viacrucis,
 
 camino de devoción;
 
+sepúltenme,
+
 sepúltenme entre retoños.
 
 #### Domingo 28 de junio, invierno 2026
