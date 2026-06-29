@@ -1,9 +1,11 @@
 ## Mis poemas por estación del año
 
-### Antes que nada
+las estaciones del año conforman un espacio muy importante en mi quehacer, en mi manera de habitar. es lo único que me mantiene en perspectiva del paso del tiempo, de que los días continúan, de que habrá un mañana, en donde las etapas vitales sí existen y se están gestando.
 
-#### ¿crees que en algún momento estuve enamorada de ti? si es así, no leas mis poemas, por favor.
+Primeros poemas desde [Otoño]()
 
-primeros poemas desde [Otoño]()
+© 2026 Bernardita-Jesus. Todos los derechos reservados.
 
-organizar mis poemas de fotografias calidas a frias
+Los poemas y fotografías de este repositorio no pueden ser reproducidos, distribuidos, modificados ni utilizados sin autorización expresa de la autora.
+
+
