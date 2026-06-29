@@ -44,9 +44,7 @@ pero he notado,
 
 que entre los trazos, mientras me extiendo,
 
-no soy perenne,
-
-y aquí perduro.
+no soy perenne.
 
 ![foto](/otono/otono-01.jpg)
 
