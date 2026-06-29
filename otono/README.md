@@ -108,7 +108,7 @@ se ramificaron aquellas sentencias,
 
 y mis añoranzas;
 
-No hay ninguna parte de mí
+No hay ninguna parte de mí,
 
 que crea que esto es lo correcto.
 
