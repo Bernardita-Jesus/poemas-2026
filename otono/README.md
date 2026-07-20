@@ -2,25 +2,25 @@
 
 Poemas y fotografías de mi tan ansiado otoño
 
-Mi estación predilecta, que ronda colores, que pronuncia formas, que muestra un proceso de preparación hacia el cuidado.
+Mi estación predilecta, que ronda colores, que pronuncia formas.
 
 ![foto](/otono/otono-08.jpg)
 
 #### Lunes 20 de abril, otoño 2026
 
-he evitado nombrar,
+He evitado nombrar,
 
 concretar solo la idea,
 
 esa idea, mi idea, esta idea;
 
-Esta que se instaura,
+esta que se instaura,
 
 carcome un susurro,
 
 me ensordece;
 
-Con devoción, llegará el día en que mi rumiar se consuma.
+con devoción, llegará el día en que mi rumiar se consuma.
 
 ![foto](/otono/otono-07.jpg)
 
@@ -38,7 +38,7 @@ Desprevenida.
 
 Ayer mis ademanes te lo afirmaron;
 
-Me hallaste, estaba oculta.
+me hallaste, estaba oculta.
 
 Bajo este árbol estoy oculta,
 
@@ -58,7 +58,7 @@ no soy perenne.
 
 Desde mi secreto:
 
-Afirmaste bajo la inercia,
+afirmaste bajo la inercia,
 
 pulciones,
 
@@ -104,11 +104,11 @@ algún vestigio de ti.
 
 #### Jueves 28 de mayo, otoño 2026
 
-se ramificaron aquellas sentencias,
+Se ramificaron aquellas sentencias,
 
 y mis añoranzas;
 
-No hay ninguna parte de mí,
+no hay ninguna parte de mí,
 
 que crea que esto es lo correcto.
 
@@ -138,7 +138,7 @@ mañana.
 
 #### Lunes 08 de junio, otoño 2026
 
-mis sentimientos son inefables,
+Mis sentimientos son inefables,
 
 siento esta incomprensión casi espiritual.
 
@@ -146,7 +146,7 @@ siento esta incomprensión casi espiritual.
 
 #### Viernes 19 de junio, otoño 2026
 
-la tierra se acongoja,
+La tierra se acongoja,
 
 esta elipse de la mañana,
 
