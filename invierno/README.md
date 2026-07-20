@@ -78,9 +78,9 @@ Me convierto en un polvo,
 
 que se disipa.
 
-Nunca voy a formar parte de lo mismo,
+Nunca voy a formar parte de lo mismo;
 
-este propósito;
+este propósito,
 
 me aglomero a esto,
 
