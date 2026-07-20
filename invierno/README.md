@@ -110,6 +110,8 @@ mi estado feroz,
 
 está sumido.
 
+![foto](./../0-recursos/invierno-06.jpg)
+
 #### Domingo 19 de julio, invierno 2026
 
 Siento este engaño,
