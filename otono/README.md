@@ -60,7 +60,7 @@ Desde mi secreto:
 
 Afirmaste bajo la inercia,
 
-punciones,
+pulciones,
 
 sentí el llamado,
 
