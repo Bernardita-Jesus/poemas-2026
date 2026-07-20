@@ -68,9 +68,7 @@ cada día, y el anterior, en la mañana.
 
 El invierno descansa en mí,
 
-cada mañana ocupo menos espacio;
-
-me insensibiliza la escarcha, soy menos que antes.
+me insensibiliza.
 
 #### Jueves 16 de julio, invierno 2026
 
