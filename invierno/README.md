@@ -1,5 +1,9 @@
 ## Mis poemas de invierno
 
+poemas en ediciooon
+
+![foto](./../0-recursos/invierno-01.jpg)
+
 #### Lunes 22 de junio, invierno 2026
 
 Cada decisión me parece intrascendente,
@@ -20,6 +24,8 @@ borraste todos los colores,
 
 solo es azul y extenuante.
 
+![foto](./../0-recursos/invierno-04.jpg)
+
 #### Jueves 25 de junio, invierno 2026
 
 En esta temporada,
@@ -32,6 +38,8 @@ sepúltenme,
 
 sepúltenme entre retoños.
 
+![foto](./../0-recursos/invierno-02.jpg)
+
 #### Domingo 28 de junio, invierno 2026
 
 Hazme parte de cada fractal que conforma mi reflejo,
@@ -39,6 +47,8 @@ Hazme parte de cada fractal que conforma mi reflejo,
 hazme parte,
 
 fúndamentame.
+
+![foto](./../0-recursos/invierno-05.jpg)
 
 #### Lunes 29 de junio, invierno 2026
 
@@ -52,6 +62,8 @@ cada vez más adentro,
 
 y no logro conciliar esta certidumbre.
 
+![foto](./../0-recursos/invierno-07.jpg)
+
 #### Domingo 05 de julio, invierno 2026
 
 Mi secreto:
@@ -63,6 +75,8 @@ son suspiros,
 son colores,
 
 cada día, y el anterior, en la mañana.
+
+![foto](./../0-recursos/invierno-03.jpg)
 
 #### Viernes 10 julio, invierno 2026
 
@@ -91,6 +105,8 @@ ya no recuerdo el engaño,
 no comprendí esta sentencia,
 
 me incrusté entre la aspereza.
+
+![foto](./../0-recursos/invierno-09.jpg)
 
 #### Sábado 18 de julio, invierno 2026
 
