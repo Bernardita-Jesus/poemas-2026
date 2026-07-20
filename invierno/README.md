@@ -118,7 +118,7 @@ Siento este engaño,
 
 no quiero pensar significancias,
 
-no creí que te corresponderían,
+no creí que te correspondieran,
 
 no creí.
 
