@@ -78,12 +78,6 @@ cada día, y el anterior, en la mañana.
 
 ![foto](./../0-recursos/invierno-03.jpg)
 
-#### Viernes 10 julio, invierno 2026
-
-El invierno descansa en mí,
-
-me insensibiliza.
-
 #### Jueves 16 de julio, invierno 2026
 
 Me convierto en un polvo,
