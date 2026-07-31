@@ -122,18 +122,37 @@ tu recuerdo es una ternura que va a acabar con mi quehacer.
 
 #### Martes 21 de julio, invierno 2026
 
-estas ideas devastadoras
+Estas ideas devastadoras,
 
-me inmovilizan
+me inmovilizan,
 
 para no tener que hacerme cargo de esta vida.
 
 #### Martes 28 de julio, invierno 2026
 
-Existo en la limerencia,
+Siento el apuro de hacer mis palabras más pequeñas,
 
-siento el apuro de hacer mis palabras más pequeñas
+existen en la limerencia;
 
-pero tu vives en la imediates
+desde esta ingenuidad
+
+en la que te gustaba habitarme.
+
+#### Viernes 31 de julio, invierno 2026
+
+Como si lo hubieras escogido,
+
+hoy todo me parece hostil,
+
+se pronuncian punzantes,
+
+como si lo hubieras escogido;
+
+si todo se tratara de mí,
+
+vivirías de la certeza,
+
+en el lecho de mis ideas.
+
 
 
