@@ -1,6 +1,6 @@
 ## Mis poemas de invierno
 
-poemas en ediciooon
+poemas en ediciooón
 
 ![foto](./../0-recursos/invierno-01.jpg)
 
@@ -20,9 +20,7 @@ en este incomprensible invierno;
 
 cada decisión,
 
-borraste todos los colores,
-
-solo es azul y extenuante.
+borraste todos los colores.
 
 ![foto](./../0-recursos/invierno-04.jpg)
 
@@ -32,9 +30,9 @@ En esta temporada,
 
 habito un viacrucis,
 
-camino de devoción;
-
 sepúltenme,
+
+en mi camino de devoción;
 
 sepúltenme entre retoños.
 
@@ -80,11 +78,7 @@ cada día, y el anterior, en la mañana.
 
 #### Jueves 16 de julio, invierno 2026
 
-Me convierto en un polvo,
-
-que se disipa.
-
-Nunca voy a formar parte de lo mismo;
+Nunca formaré parte de lo mismo,
 
 este propósito,
 
@@ -125,5 +119,21 @@ no creí.
 Se consume el aire en el desconocimiento,
 
 tu recuerdo es una ternura que va a acabar con mi quehacer.
+
+#### Martes 21 de julio, invierno 2026
+
+estas ideas devastadoras
+
+me inmovilizan
+
+para no tener que hacerme cargo de esta vida.
+
+#### Martes 28 de julio, invierno 2026
+
+Existo en la limerencia,
+
+siento el apuro de hacer mis palabras más pequeñas
+
+pero tu vives en la imediates
 
 
