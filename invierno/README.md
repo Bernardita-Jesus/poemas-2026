@@ -22,8 +22,6 @@ cada decisión,
 
 borraste todos los colores.
 
-![foto](./../0-recursos/invierno-04.jpg)
-
 #### Jueves 25 de junio, invierno 2026
 
 En esta temporada,
@@ -36,7 +34,7 @@ en mi camino de devoción;
 
 sepúltenme entre retoños.
 
-![foto](./../0-recursos/invierno-02.jpg)
+![foto](./../0-recursos/invierno-04.jpg)
 
 #### Domingo 28 de junio, invierno 2026
 
@@ -45,8 +43,6 @@ Hazme parte de cada fractal que conforma mi reflejo,
 hazme parte,
 
 fúndamentame.
-
-![foto](./../0-recursos/invierno-05.jpg)
 
 #### Lunes 29 de junio, invierno 2026
 
@@ -60,7 +56,7 @@ cada vez más adentro,
 
 y no logro conciliar esta certidumbre.
 
-![foto](./../0-recursos/invierno-07.jpg)
+![foto](./../0-recursos/invierno-02.jpg)
 
 #### Domingo 05 de julio, invierno 2026
 
@@ -74,7 +70,7 @@ son colores,
 
 cada día, y el anterior, en la mañana.
 
-![foto](./../0-recursos/invierno-03.jpg)
+![foto](./../0-recursos/invierno-05.jpg)
 
 #### Jueves 16 de julio, invierno 2026
 
@@ -94,7 +90,7 @@ no comprendí esta sentencia,
 
 me incrusté entre la aspereza.
 
-![foto](./../0-recursos/invierno-09.jpg)
+![foto](./../0-recursos/invierno-07.jpg)
 
 #### Sábado 18 de julio, invierno 2026
 
@@ -103,8 +99,6 @@ Mi madre me preguntó por qué no reaccionaba;
 mi estado feroz,
 
 está sumido.
-
-![foto](./../0-recursos/invierno-06.jpg)
 
 #### Domingo 19 de julio, invierno 2026
 
@@ -119,6 +113,8 @@ no creí.
 Se consume el aire en el desconocimiento,
 
 tu recuerdo es una ternura que va a acabar con mi quehacer.
+
+![foto](./../0-recursos/invierno-03.jpg)
 
 #### Martes 21 de julio, invierno 2026
 
@@ -138,6 +134,8 @@ desde esta ingenuidad
 
 en la que te gustaba habitarme.
 
+![foto](./../0-recursos/invierno-09.jpg)
+
 #### Viernes 31 de julio, invierno 2026
 
 Como si lo hubieras escogido,
@@ -153,6 +151,8 @@ si todo se tratara de mí,
 vivirías de la certeza,
 
 en el lecho de mis ideas.
+
+![foto](./../0-recursos/invierno-06.jpg)
 
 #### Sábado 01 de agosto, invierno 2026
 
