@@ -162,7 +162,9 @@ en el lecho de mis ideas.
 
 Debo repetir mis temas a ver si en mis palabras encuentro la concepción;
 
-debo repetir los temas a ver si en las palabras encuentro,
+debo repetir los temas 
+
+a ver si en las palabras encuentro,
 
 si en las palabras te encuentro,
 
@@ -172,7 +174,7 @@ si descifro esto.
 
 Debo descifrar las palabras,
 
-los vestigios de lo que fueron tus ideas,
+los vestigios de lo que fueron tus ideas
 
 con las que soñaste,
 
@@ -190,4 +192,31 @@ ya indagué cada palabra,
 
 y no logro encontrarme en esta repetición.
 
+#### Domingo 02 de agosto, invierno 2026
+
+Podría dejar de ser parte incluso de todo,
+
+y nadie extrañaría mis ademanes,
+
+mis respuestas sensatas y ridículas,
+
+mis abrazos y mis besitos.
+
+En este intento de permanecer,
+
+me doy cuenta de que nunca soy suficientemente parte de algo.
+
+Siempre estoy en la excepción,
+
+la consulta,
+
+el dilema.
+
+En este intento de permanecer,
+
+he construido un universo en donde hundirme,
+
+para que puedan recorrerme,
+
+cuando me sumerja por completo.
 
