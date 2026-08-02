@@ -154,5 +154,36 @@ vivirías de la certeza,
 
 en el lecho de mis ideas.
 
+#### Sábado 01 de agosto, invierno 2026
+
+Debo repetir mis temas a ver si en mis palabras encuentro la concepción;
+
+debo repetir los temas a ver si en las palabras encuentro,
+
+si en las palabras te encuentro,
+
+si te descifro,
+
+si descifro esto.
+
+Debo descifrar las palabras,
+
+los vestigios de lo que fueron tus ideas,
+
+con las que soñaste,
+
+a ver si en tus sueños me encuentro;
+
+puedo soportar ser solo parte de tus sueños,
+
+debo repetir los sueños
+
+hasta que dejen de dolerme,
+
+porque no hay nada más que descifrar,
+
+ya indagué cada palabra,
+
+y no logro encontrarme en esta repetición.
 
 
