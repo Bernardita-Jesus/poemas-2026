@@ -1,11 +1,5 @@
 ## Mis poemas de invierno
 
-Subo mis poemas y mis fotos este invierno,
-
-porque estoy desapareciendo,
-
-y cada día soy menos.
-
 ![foto](./../0-recursos/invierno-01.jpg)
 
 #### Lunes 22 de junio, invierno 2026
