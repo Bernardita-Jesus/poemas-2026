@@ -1,7 +1,5 @@
 ## Mis poemas de invierno
 
-![foto](./../0-recursos/invierno-01.jpg)
-
 #### Lunes 22 de junio, invierno 2026
 
 Cada decisión me parece intrascendente,
@@ -19,6 +17,8 @@ en este incomprensible invierno;
 cada decisión,
 
 borraste todos los colores.
+
+![foto](./../0-recursos/invierno-01.jpg)
 
 #### Jueves 25 de junio, invierno 2026
 
