@@ -214,3 +214,20 @@ para que puedan recorrerme,
 
 cuando me sumerja por completo.
 
+#### Miércoles 12 de agosto, invierno 2026
+
+quería aferrarme a algo,
+
+aunque sea a este invierno que me inmoviliza,
+
+por supuesto que fue a lo incorrecto,
+
+soy incapaz, 
+
+fui;
+
+quiero detenerme en la excepción,
+
+y en cada gesto que estaba colmado de indecisión.
+
+
