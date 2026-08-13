@@ -231,4 +231,16 @@ quiero detenerme en la excepción,
 
 y en cada gesto que estaba colmado de indecisión.
 
+#### Jueves 13 de agosto, invierno 2026
 
+**Hasta que no sea yo**
+
+cambiaría cada palabra que escogí,
+
+ocultaría cada miedo,
+
+dejaría de comunicar mis ideas con soltura,
+
+escondería cada acto de amor
+
+que denote lo mucho que quería estar a tu lado.
