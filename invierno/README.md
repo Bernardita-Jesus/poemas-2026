@@ -231,7 +231,7 @@ quiero detenerme en la excepción,
 
 y en cada gesto que estaba colmado de indecisión.
 
-#### Jueves 13 de agosto, invierno 2026
+#### Miércoles 12 de agosto, invierno 2026
 
 **Hasta que no sea yo**
 
@@ -244,3 +244,11 @@ dejaría de comunicar mis ideas con soltura,
 escondería cada acto de amor
 
 que denote lo mucho que quería estar a tu lado.
+
+#### Jueves 13 de agosto, invierno 2026
+
+Me gustaría envolverme en una arboleda,
+
+quiero que mis ideas se enmarañen sobre mí;
+
+si me vieran enraizada, no cuestionarían en dónde me hallo.
