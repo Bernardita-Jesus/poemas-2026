@@ -252,3 +252,17 @@ Me gustaría envolverme en una arboleda,
 quiero que mis ideas se enmarañen sobre mí;
 
 si me vieran enraizada, no cuestionarían en dónde me hallo.
+
+#### Domingo 16 de agosto, invierno 2026
+
+Entiendo que no tenga que arrastrarte a esto,
+
+pero incluso ahí, no serías capaz de entenderme;
+
+me gusta recostarme a tu lado,
+
+hay una pequeña parte de mí que cree que podríamos compartir nuestras vidas,
+
+pero eres alguien despreocupado, en el mejor de los sentidos,
+
+y yo soy alguien que se siente cómoda habitando mis complejidades.
