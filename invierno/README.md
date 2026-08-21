@@ -191,11 +191,7 @@ y no logro encontrarme en esta repetición.
 
 Podría dejar de ser parte incluso de todo,
 
-y nadie extrañaría mis ademanes,
-
-mis respuestas sensatas y ridículas,
-
-mis abrazos y mis besitos.
+y nadie extrañaría mis ademanes.
 
 En este intento de permanecer,
 
