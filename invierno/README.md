@@ -227,6 +227,8 @@ quiero detenerme en la excepción,
 
 y en cada gesto que estaba colmado de indecisión.
 
+![foto](./../0-recursos/invierno-08.jpg)
+
 #### Miércoles 12 de agosto, invierno 2026
 
 **Hasta que no sea yo**
@@ -249,6 +251,8 @@ quiero que mis ideas se enmarañen sobre mí;
 
 si me vieran enraizada, no cuestionarían en dónde me hallo.
 
+![foto](./../0-recursos/invierno-09.jpg)
+
 #### Domingo 16 de agosto, invierno 2026
 
 Entiendo que no tenga que arrastrarte a esto,
@@ -262,3 +266,13 @@ hay una pequeña parte de mí que cree que podríamos compartir nuestras vidas,
 pero eres alguien despreocupado, en el mejor de los sentidos,
 
 y yo soy alguien que se siente cómoda habitando mis complejidades.
+
+#### Sábado 22 de agosto, invierno 2026
+
+Esto invoca 
+
+y no estoy lista para despertar en un clima que no me pertenece,
+
+en una suerte de temporada,
+
+de manifestaciones equívocas.
