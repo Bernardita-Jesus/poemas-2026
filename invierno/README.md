@@ -276,3 +276,11 @@ y no estoy lista para despertar en un clima que no me pertenece,
 en una suerte de temporada,
 
 de manifestaciones equívocas.
+
+#### Martes 25 de agosto, invierno 2026
+
+Entonces me llega tu recuerdo y mi cuerpo se retuerce en esta incomprensión,
+
+se retuerce.
+
+Temo detenerme a habitar lo feroz de tu recuerdo.
