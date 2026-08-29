@@ -225,7 +225,7 @@ fui;
 
 quiero detenerme en la excepción,
 
-y en cada gesto que estaba colmado de indecisión.
+y en cada gesto colmado de indecisión.
 
 ![foto](./../0-recursos/invierno-08.jpg)
 
