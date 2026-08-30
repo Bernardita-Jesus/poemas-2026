@@ -288,3 +288,45 @@ Entonces me llega tu recuerdo y mi cuerpo se retuerce en esta incomprensión,
 se retuerce.
 
 Temo detenerme a habitar lo feroz de tu recuerdo.
+
+#### Miércoles 26 de agosto, invierno 2026
+
+me extiendo en lo inoportuno
+
+me retracto,
+
+no llegué a pronunciar mis ideas
+
+porque no caben en esta sala,
+
+y se quedan esperando,
+
+justo afuera,
+
+se hacen espacio como pueden
+
+y se recuestan a mi lado.
+
+#### Sábado 29 de agosto, invierno 2026
+
+me he dedicado a convertir espacios de mí
+
+en una narrativa extremadamente personal,
+
+porque estaría dispuesta a perderme por ti,
+
+mentiría sin dudar, 
+
+me abandonaría por completo
+
+para volver a sentirme entendida;
+
+para poder mirarte,
+
+admirarte
+
+por varios segundos
+
+sin habitar esta devastadora pena que me dejó tu abandono.
+
+
