@@ -211,6 +211,8 @@ para que puedan recorrerme,
 
 cuando me sumerja por completo.
 
+![foto](./../0-recursos/invierno-11.jpg)
+
 #### Miércoles 12 de agosto, invierno 2026
 
 quería aferrarme a algo,
@@ -266,6 +268,8 @@ hay una pequeña parte de mí que cree que podríamos compartir nuestras vidas,
 pero eres alguien despreocupado, en el mejor de los sentidos,
 
 y yo soy alguien que se siente cómoda habitando mis complejidades.
+
+![foto](./../0-recursos/invierno-10.jpg)
 
 #### Sábado 22 de agosto, invierno 2026
 
