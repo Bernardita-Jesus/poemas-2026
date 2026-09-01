@@ -12,7 +12,11 @@ He evitado nombrar,
 
 concretar solo la idea,
 
-esa idea, mi idea, esta idea;
+esa idea
+
+mi idea
+
+esta idea;
 
 esta que se instaura,
 
@@ -60,7 +64,7 @@ Desde mi secreto:
 
 afirmaste bajo la inercia,
 
-pulciones,
+pulsiones,
 
 sentí el llamado,
 
