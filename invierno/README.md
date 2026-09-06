@@ -59,11 +59,11 @@ y no logro conciliar esta certidumbre.
 
 Mi secreto:
 
-Son pulsiones,
+Son pulsiones
 
-son suspiros,
+son suspiros
 
-son colores,
+son colores
 
 cada día, y el anterior, en la mañana.
 
@@ -77,7 +77,7 @@ este propósito,
 
 me aglomero a esto,
 
-una suerte de yo,
+una suerte de yo
 
 a esto;
 
@@ -103,7 +103,7 @@ Siento este engaño,
 
 no quiero pensar significancias,
 
-no creí que te correspondieran,
+no creí que te correspondieran
 
 no creí.
 
@@ -159,9 +159,9 @@ debo repetir los temas
 
 a ver si en las palabras encuentro,
 
-si en las palabras te encuentro,
+si en las palabras te encuentro
 
-si te descifro,
+si te descifro
 
 si descifro esto.
 
@@ -197,9 +197,9 @@ En este intento de permanecer,
 
 me doy cuenta de que nunca soy suficientemente parte de algo.
 
-Siempre estoy en la excepción,
+Siempre estoy en la excepción
 
-la consulta,
+la consulta
 
 el dilema.
 
@@ -221,7 +221,7 @@ aunque sea a este invierno que me inmoviliza,
 
 por supuesto que fue a lo incorrecto,
 
-soy incapaz, 
+soy incapaz
 
 fui;
 
@@ -328,5 +328,31 @@ admirarte
 por varios segundos
 
 sin habitar esta devastadora pena que me dejó tu abandono.
+
+#### miércoles 02 de septiembre, Invierno 2026
+
+Siento como si tu recuerdo se expandiera
+
+sobre mi cuerpo.
+
+Fractales me dañan y se unen a la tierra
+
+me unifican;
+
+y entonces es todo lo que arrastro.
+
+#### sábado 05 de septiembre, Invierno 2024
+
+quiero dedicarme a ti,
+
+mi traslado es un intertanto
+
+en este enredo de hitos,
+
+intercambios de reverberación.
+
+Tanto he desenredado mis sueños;
+
+dilucidado mis alcances.
 
 
