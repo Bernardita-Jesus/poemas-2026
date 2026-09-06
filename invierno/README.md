@@ -329,7 +329,7 @@ por varios segundos
 
 sin habitar esta devastadora pena que me dejó tu abandono.
 
-#### miércoles 02 de septiembre, Invierno 2026
+#### Miércoles 02 de septiembre, invierno 2026
 
 Siento como si tu recuerdo se expandiera
 
@@ -341,7 +341,7 @@ me unifican;
 
 y entonces es todo lo que arrastro.
 
-#### sábado 05 de septiembre, Invierno 2024
+#### Sábado 05 de septiembre, invierno 2026
 
 quiero dedicarme a ti,
 
