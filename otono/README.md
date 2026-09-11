@@ -24,7 +24,9 @@ carcome un susurro,
 
 me ensordece;
 
-con devoción, llegará el día en que mi rumiar se consuma.
+con devoción, 
+
+llegará el día en que mi rumiar se consuma.
 
 ![foto](./../0-recursos/otono-02.jpg)
 
