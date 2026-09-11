@@ -160,6 +160,4 @@ solo pronuncia lo corroído de mi pasar.
 
 ![foto](./../0-recursos/otono-10.jpg)
 
-![foto](./../0-recursos/otono-13.jpg)
 
-![foto](./../0-recursos/otono-14.jpg)
