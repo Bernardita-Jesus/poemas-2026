@@ -4,7 +4,7 @@ Poemas y fotografías de mi tan ansiado otoño
 
 Mi estación predilecta, que ronda colores, que pronuncia formas.
 
-![foto](/otono/otono-08.jpg)
+![foto](./../0-recursos/otono-01.jpg)
 
 #### Lunes 20 de abril, otoño 2026
 
@@ -26,13 +26,13 @@ me ensordece;
 
 con devoción, llegará el día en que mi rumiar se consuma.
 
-![foto](/otono/otono-07.jpg)
+![foto](./../0-recursos/otono-02.jpg)
 
 #### Lunes 27 de abril, otoño 2026
 
 Me encontré en ellas,
 
-rebozante de colores, 
+rebosante de colores, 
 
 rondan mi mente,
 
@@ -56,7 +56,7 @@ que entre los trazos, mientras me extiendo,
 
 no soy perenne.
 
-![foto](/otono/otono-01.jpg)
+![foto](./../0-recursos/otono-03.jpg)
 
 #### Domingo 3 de mayo, otoño 2026
 
@@ -86,7 +86,7 @@ ahí está
 
 ahí lo oculté.
 
-![foto](/otono/otono-04.jpg)
+![foto](./../0-recursos/otono-04.jpg)
 
 #### Sábado 23 de mayo, otoño 2026
 
@@ -104,7 +104,7 @@ Vestigio,
 
 algún vestigio de ti.
 
-![foto](/otono/otono-06.jpg)
+![foto](./../0-recursos/otono-05.jpg)
 
 #### Jueves 28 de mayo, otoño 2026
 
@@ -118,7 +118,7 @@ que crea que esto es lo correcto.
 
 Quiero besarte como si te dijera que te amara.
 
-![foto](/otono/otono-09.jpg)
+![foto](./../0-recursos/otono-06.jpg)
 
 #### Jueves 04 de junio, otoño 2026
 
@@ -138,7 +138,7 @@ estarás
 
 mañana.
 
-![foto](/otono/otono-11.jpeg)
+![foto](./../0-recursos/otono-07.jpg)
 
 #### Lunes 08 de junio, otoño 2026
 
@@ -146,7 +146,7 @@ Mis sentimientos son inefables,
 
 siento esta incomprensión casi espiritual.
 
-![foto](/otono/otono-12.jpeg)
+![foto](./../0-recursos/otono-08.jpg)
 
 #### Viernes 19 de junio, otoño 2026
 
@@ -156,4 +156,10 @@ esta elipse de la mañana,
 
 solo pronuncia lo corroído de mi pasar.
 
-![foto](/otono/otono-10.jpeg)
+![foto](./../0-recursos/otono-09.jpg)
+
+![foto](./../0-recursos/otono-10.jpg)
+
+![foto](./../0-recursos/otono-13.jpg)
+
+![foto](./../0-recursos/otono-14.jpg)

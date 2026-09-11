@@ -30,7 +30,6 @@ en mi camino de devoción;
 
 sepúltenme entre retoños.
 
-
 ![foto](./../0-recursos/invierno-01.jpg)
 
 #### Domingo 28 de junio, invierno 2026
@@ -39,7 +38,7 @@ Hazme parte de cada fractal que conforma mi reflejo,
 
 hazme parte,
 
-fúndamentame.
+fundaméntame.
 
 #### Lunes 29 de junio, invierno 2026
 
@@ -53,7 +52,7 @@ cada vez más adentro,
 
 y no logro conciliar esta certidumbre.
 
-![foto](./../0-recursos/invierno-04.jpg)
+![foto](./../0-recursos/invierno-02.jpg)
 
 #### Domingo 05 de julio, invierno 2026
 
@@ -66,8 +65,6 @@ son suspiros
 son colores
 
 cada día, y el anterior, en la mañana.
-
-![foto](./../0-recursos/invierno-02.jpg)
 
 #### Jueves 16 de julio, invierno 2026
 
@@ -87,7 +84,7 @@ no comprendí esta sentencia,
 
 me incrusté entre la aspereza.
 
-![foto](./../0-recursos/invierno-05.jpg)
+![foto](./../0-recursos/invierno-03.jpg)
 
 #### Sábado 18 de julio, invierno 2026
 
@@ -111,7 +108,7 @@ Se consume el aire en el desconocimiento,
 
 tu recuerdo es una ternura que va a acabar con mi quehacer.
 
-![foto](./../0-recursos/invierno-07.jpg)
+![foto](./../0-recursos/invierno-04.jpg)
 
 #### Martes 21 de julio, invierno 2026
 
@@ -131,7 +128,7 @@ desde esta ingenuidad
 
 en la que te gustaba habitarme.
 
-![foto](./../0-recursos/invierno-03.jpg)
+![foto](./../0-recursos/invierno-05.jpg)
 
 #### Viernes 31 de julio, invierno 2026
 
@@ -148,8 +145,6 @@ si todo se tratara de mí,
 vivirías de la certeza,
 
 en el lecho de mis ideas.
-
-![foto](./../0-recursos/invierno-09.jpg)
 
 #### Sábado 01 de agosto, invierno 2026
 
@@ -211,8 +206,6 @@ para que puedan recorrerme,
 
 cuando me sumerja por completo.
 
-![foto](./../0-recursos/invierno-11.jpg)
-
 #### Miércoles 12 de agosto, invierno 2026
 
 quería aferrarme a algo,
@@ -229,7 +222,7 @@ quiero detenerme en la excepción,
 
 y en cada gesto colmado de indecisión.
 
-![foto](./../0-recursos/invierno-08.jpg)
+![foto](./../0-recursos/invierno-07.jpg)
 
 #### Miércoles 12 de agosto, invierno 2026
 
@@ -253,7 +246,7 @@ quiero que mis ideas se enmarañen sobre mí;
 
 si me vieran enraizada, no cuestionarían en dónde me hallo.
 
-![foto](./../0-recursos/invierno-09.jpg)
+![foto](./../0-recursos/invierno-08.jpg)
 
 #### Domingo 16 de agosto, invierno 2026
 
@@ -269,8 +262,6 @@ pero eres alguien despreocupado, en el mejor de los sentidos,
 
 y yo soy alguien que se siente cómoda habitando mis complejidades.
 
-![foto](./../0-recursos/invierno-10.jpg)
-
 #### Sábado 22 de agosto, invierno 2026
 
 Esto invoca 
@@ -280,6 +271,8 @@ y no estoy lista para despertar en un clima que no me pertenece,
 en una suerte de temporada,
 
 de manifestaciones equívocas.
+
+![foto](./../0-recursos/invierno-09.jpg)
 
 #### Martes 25 de agosto, invierno 2026
 
@@ -306,6 +299,8 @@ justo afuera,
 se hacen espacio como pueden
 
 y se recuestan a mi lado.
+
+![foto](./../0-recursos/invierno-10.jpg)
 
 #### Sábado 29 de agosto, invierno 2026
 
@@ -341,6 +336,8 @@ me unifican;
 
 y entonces es todo lo que arrastro.
 
+![foto](./../0-recursos/invierno-11.jpg)
+
 #### Sábado 05 de septiembre, invierno 2026
 
 quiero dedicarme a ti,
@@ -355,4 +352,30 @@ Tanto he desenredado mis sueños;
 
 dilucidado mis alcances.
 
+#### Martes 08 de septiembre, invierno 2026
 
+de todas estas iteraciones,
+
+trazado podría ser;
+
+eco sin fecha,
+
+soy tu coincidencia.
+
+![foto](./../0-recursos/invierno-12.jpg)
+
+#### Jueves 10 de septiembre, invierno 2026
+
+como puedo construirme con tanta pasión,
+
+dedicarme a observar,
+
+comprender;
+
+si aún me volteo cada vez que puedo,
+
+te busco en cada lugar que pueda sostener tu forma
+
+tan linda de habitar este mundo.
+
+![foto](./../0-recursos/invierno-13.jpg)
