@@ -30,6 +30,28 @@ llegará el día en que mi rumiar se consuma.
 
 ![foto](./../0-recursos/otono-02.jpg)
 
+#### Domingo 26 de abril, otoño 2026
+
+Con mi anhelo:
+
+pletórico mi sentir,
+
+he sentido el cariño,
+
+y la apetencia de pretendernos,
+
+observarnos.
+
+No procuraba inmiscuirme,
+
+pero a medida que lo hablamos
+
+me di cuenta,
+
+di en cuenta;
+
+que yo he determinado.
+
 #### Lunes 27 de abril, otoño 2026
 
 Me encontré en ellas,
