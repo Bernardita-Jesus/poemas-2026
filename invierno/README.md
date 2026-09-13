@@ -165,11 +165,11 @@ debo repetir los temas
 
 a ver si en las palabras encuentro,
 
-si en las palabras te encuentro
+si en las palabras
 
 si te descifro
 
-si descifro esto.
+descifro esto.
 
 Debo descifrar las palabras,
 
@@ -194,10 +194,6 @@ y no logro encontrarme en esta repetición.
 ![foto](./../0-recursos/invierno-09.jpg)
 
 #### Domingo 02 de agosto, invierno 2026
-
-Podría dejar de ser parte incluso de todo,
-
-y nadie extrañaría mis ademanes.
 
 En este intento de permanecer,
 
