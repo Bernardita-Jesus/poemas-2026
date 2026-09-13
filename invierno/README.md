@@ -1,8 +1,8 @@
 ## Mis poemas de invierno
 
-Poemas y fotografías de mi ... invierno.
+Poemas y fotografías de mi gélido e introspectivo invierno.
 
-Me siento comoda en este frio, me siento parte.
+Me siento cómoda en este frío, me siento parte.
 
 ![foto](./../0-recursos/invierno-01.jpg)
 
@@ -355,7 +355,7 @@ soy tu coincidencia.
 
 #### Jueves 10 de septiembre, invierno 2026
 
-como puedo construirme con tanta pasión,
+cómo puedo construirme con tanta pasión,
 
 dedicarme a observar,
 
