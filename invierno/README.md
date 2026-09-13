@@ -1,5 +1,11 @@
 ## Mis poemas de invierno
 
+Poemas y fotografías de mi ... invierno.
+
+Me siento comoda en este frio, me siento parte.
+
+![foto](./../0-recursos/invierno-01.jpg)
+
 #### Lunes 22 de junio, invierno 2026
 
 Cada decisión me parece intrascendente,
@@ -18,6 +24,8 @@ cada decisión,
 
 borraste todos los colores.
 
+![foto](./../0-recursos/invierno-04.jpg)
+
 #### Jueves 25 de junio, invierno 2026
 
 En esta temporada,
@@ -30,7 +38,6 @@ en mi camino de devoción;
 
 sepúltenme entre retoños.
 
-![foto](./../0-recursos/invierno-01.jpg)
 
 #### Domingo 28 de junio, invierno 2026
 
@@ -39,6 +46,8 @@ Hazme parte de cada fractal que conforma mi reflejo,
 hazme parte,
 
 fundaméntame.
+
+![foto](./../0-recursos/invierno-05.jpg)
 
 #### Lunes 29 de junio, invierno 2026
 
@@ -52,8 +61,6 @@ cada vez más adentro,
 
 y no logro conciliar esta certidumbre.
 
-![foto](./../0-recursos/invierno-02.jpg)
-
 #### Domingo 05 de julio, invierno 2026
 
 Mi secreto:
@@ -65,6 +72,8 @@ son suspiros
 son colores
 
 cada día, y el anterior, en la mañana.
+
+![foto](./../0-recursos/invierno-03.jpg)
 
 #### Jueves 16 de julio, invierno 2026
 
@@ -84,7 +93,7 @@ no comprendí esta sentencia,
 
 me incrusté entre la aspereza.
 
-![foto](./../0-recursos/invierno-03.jpg)
+![foto](./../0-recursos/invierno-02.jpg)
 
 #### Sábado 18 de julio, invierno 2026
 
@@ -108,7 +117,7 @@ Se consume el aire en el desconocimiento,
 
 tu recuerdo es una ternura que va a acabar con mi quehacer.
 
-![foto](./../0-recursos/invierno-04.jpg)
+![foto](./../0-recursos/invierno-18.jpg)
 
 #### Martes 21 de julio, invierno 2026
 
@@ -128,7 +137,7 @@ desde esta ingenuidad
 
 en la que te gustaba habitarme.
 
-![foto](./../0-recursos/invierno-05.jpg)
+![foto](./../0-recursos/invierno-13.jpg)
 
 #### Viernes 31 de julio, invierno 2026
 
@@ -145,6 +154,8 @@ si todo se tratara de mí,
 vivirías de la certeza,
 
 en el lecho de mis ideas.
+
+![foto](./../0-recursos/invierno-06.jpg)
 
 #### Sábado 01 de agosto, invierno 2026
 
@@ -180,7 +191,7 @@ ya indagué cada palabra,
 
 y no logro encontrarme en esta repetición.
 
-![foto](./../0-recursos/invierno-06.jpg)
+![foto](./../0-recursos/invierno-15.jpg)
 
 #### Domingo 02 de agosto, invierno 2026
 
@@ -206,6 +217,8 @@ para que puedan recorrerme,
 
 cuando me sumerja por completo.
 
+![foto](./../0-recursos/invierno-16.jpg)
+
 #### Miércoles 12 de agosto, invierno 2026
 
 quería aferrarme a algo,
@@ -222,7 +235,7 @@ quiero detenerme en la excepción,
 
 y en cada gesto colmado de indecisión.
 
-![foto](./../0-recursos/invierno-07.jpg)
+![foto](./../0-recursos/invierno-17.jpg)
 
 #### Miércoles 12 de agosto, invierno 2026
 
@@ -246,7 +259,7 @@ quiero que mis ideas se enmarañen sobre mí;
 
 si me vieran enraizada, no cuestionarían en dónde me hallo.
 
-![foto](./../0-recursos/invierno-08.jpg)
+![foto](./../0-recursos/invierno-07.jpg)
 
 #### Domingo 16 de agosto, invierno 2026
 
@@ -302,28 +315,6 @@ y se recuestan a mi lado.
 
 ![foto](./../0-recursos/invierno-10.jpg)
 
-#### Sábado 29 de agosto, invierno 2026
-
-me he dedicado a convertir espacios de mí
-
-en una narrativa extremadamente personal,
-
-porque estaría dispuesta a perderme por ti,
-
-mentiría sin dudar, 
-
-me abandonaría por completo
-
-para volver a sentirme entendida;
-
-para poder mirarte,
-
-admirarte
-
-por varios segundos
-
-sin habitar esta devastadora pena que me dejó tu abandono.
-
 #### Miércoles 02 de septiembre, invierno 2026
 
 Siento como si tu recuerdo se expandiera
@@ -335,8 +326,6 @@ Fractales me dañan y se unen a la tierra
 me unifican;
 
 y entonces es todo lo que arrastro.
-
-![foto](./../0-recursos/invierno-11.jpg)
 
 #### Sábado 05 de septiembre, invierno 2026
 
@@ -352,6 +341,8 @@ Tanto he desenredado mis sueños;
 
 dilucidado mis alcances.
 
+![foto](./../0-recursos/invierno-11.jpg)
+
 #### Martes 08 de septiembre, invierno 2026
 
 de todas estas iteraciones,
@@ -361,8 +352,6 @@ trazado podría ser;
 eco sin fecha,
 
 soy tu coincidencia.
-
-![foto](./../0-recursos/invierno-12.jpg)
 
 #### Jueves 10 de septiembre, invierno 2026
 
@@ -378,4 +367,7 @@ te busco en cada lugar que pueda sostener tu forma
 
 tan linda de habitar este mundo.
 
-![foto](./../0-recursos/invierno-13.jpg)
+![foto](./../0-recursos/invierno-14.jpg)
+
+
+
