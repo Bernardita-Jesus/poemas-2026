@@ -391,13 +391,15 @@ mientras atravesabas un duelo
 
 y yo me acostumbraba a tu cuidado,
 
-mientras cuidaba mis demostraciones,
+mientras cuidaba mis demostraciones
 
 se escapaban mis dibujos y mis poemas;
 
 pero no sé más que amarte,
 
-y se hace difícil saber que siempre tendré que cargar con este amor.
+y se hace difícil saber 
+
+que siempre tendré que cargar con este amor.
 
 
 
