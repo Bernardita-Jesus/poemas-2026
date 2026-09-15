@@ -387,7 +387,7 @@ como si no me amaras;
 
 tu cariño era un intertanto
 
-mientras atravesabas un duelo,
+mientras atravesabas un duelo
 
 y yo me acostumbraba a tu cuidado,
 
