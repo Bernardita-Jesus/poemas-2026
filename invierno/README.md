@@ -365,5 +365,40 @@ tan linda de habitar este mundo.
 
 ![foto](./../0-recursos/invierno-16.jpg)
 
+#### Lunes 14 de septiembre, invierno 2026
+
+sueño por mí,
+
+me reconfortan mis imaginarios,
+
+como si tuviera mucho menos que decir
+
+menos que decir
+
+inconsecuente,
+
+como si me recordaras con dulzura.
+
+Me quieren convencer
+
+que fuiste injusto conmigo
+
+como si no me amaras;
+
+tu cariño era un intertanto
+
+mientras atravesabas un duelo,
+
+y yo me acostumbraba a tu cuidado,
+
+mientras cuidaba mis demostraciones,
+
+se escapaban mis dibujos y mis poemas;
+
+pero no sé más que amarte,
+
+y se hace difícil saber que siempre tendré que cargar con este amor.
+
+
 
 
