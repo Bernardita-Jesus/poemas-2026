@@ -2,7 +2,7 @@
 
 Poemas y fotografías de mi gélido e introspectivo invierno.
 
-Me siento cómoda en este frío, me siento parte.
+Me siento cómoda en este frío.
 
 ![foto](./../0-recursos/invierno-01.jpg)
 
