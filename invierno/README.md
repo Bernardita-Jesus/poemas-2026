@@ -401,6 +401,31 @@ y se hace difícil saber
 
 que siempre tendré que cargar con este amor.
 
+#### Jueves 16 de septiembre, invierno 2026
 
+quiero vomitar las certezas
 
+nunca más rumiantes;
 
+enfermarme de mis ideas,
+
+mis ideas ahora descompuestas
+
+putrefactas;
+
+quiero caer enferma,
+
+ensordecer tu insolencia
+
+quiero caer enferma,
+
+mientras buscas habitarme
+
+silenciarme,
+
+quiero caer.
+
+#### Sábado 19 de septiembre, invierno 2026
+
+y verás mi vida pasar
+y yo veré cómo urdes tus mentiras
