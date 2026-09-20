@@ -387,15 +387,13 @@ como si no me amaras;
 
 tu cariño era un intertanto
 
-mientras atravesabas un duelo
-
-y yo me acostumbraba a tu cuidado,
+y yo me acostumbraba a tu cuidado;
 
 mientras cuidaba mis demostraciones
 
 se escapaban mis dibujos y mis poemas;
 
-pero no sé más que amarte,
+pero yo no sé más que amarte,
 
 y se hace difícil saber 
 
